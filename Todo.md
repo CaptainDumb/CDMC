@@ -1,0 +1,146 @@
+# CMDC PLANNING LIST
+
+## `0.1` The First Release 
+- [ ] Start of MMM Archive
+  - [ ] Legacy Dumped (Oldest)
+    - [ ] Baby
+    - [ ] Baby+
+    - [ ] Very Easy
+    - [ ] Very Easy+
+    - [ ] Easy
+    - [ ] Easy+
+    - [ ] Normal
+    - [ ] Normal+
+    - [ ] Hard
+    - [ ] Hard+
+    - [ ] Very Hard
+    - [ ] Very Hard+
+    - [ ] Insane
+    - [ ] Insane+
+    - [ ] Crazy
+    - [ ] Crazy+
+    - [ ] Brutal
+    - [ ] Brutal+
+    - [ ] BrutalEX
+    - [ ] BrutalEX+
+    - [ ] Impossible
+    - [ ] Impossible+
+    - [ ] ImpossibleEX
+    - [ ] ImpossibleEX+
+    - [ ] Impossible+
+    - [ ] Impossible+EX
+    - [ ] Impossible+EX+
+  - [ ] Legacy Dumped (Older)
+    - [ ] Baby
+    - [ ] Baby+
+    - [ ] Very Easy
+    - [ ] Very Easy+
+    - [ ] Easy
+    - [ ] Easy+
+    - [ ] Normal
+    - [ ] Normal+
+    - [ ] Hard
+    - [ ] Hard+
+    - [ ] Very Hard
+    - [ ] Very Hard+
+    - [ ] Insane
+    - [ ] Insane+
+    - [ ] Crazy
+    - [ ] Crazy+
+    - [ ] Brutal
+    - [ ] Brutal+
+    - [ ] BrutalEX
+    - [ ] BrutalEX+
+    - [ ] Impossible
+    - [ ] Impossible+
+    - [ ] ImpossibleEX
+    - [ ] ImpossibleEX+
+    - [ ] Impossible+
+    - [ ] Impossible+EX
+    - [ ] Impossible+EX+
+  - [ ] Legacy Dumped (Old)
+    - [ ] Baby
+    - [ ] Baby+
+    - [ ] Very Easy
+    - [ ] Very Easy+
+    - [ ] Easy
+    - [ ] Easy+
+    - [ ] Normal
+    - [ ] Normal+
+    - [ ] Hard
+    - [ ] Hard+
+    - [ ] Very Hard
+    - [ ] Very Hard+
+    - [ ] Insane
+    - [ ] Insane+
+    - [ ] Crazy
+    - [ ] Crazy+
+    - [ ] Brutal
+    - [ ] Brutal+
+    - [ ] BrutalEX
+    - [ ] BrutalEX+
+    - [ ] Impossible
+    - [ ] Impossible+
+    - [ ] ImpossibleEX
+    - [ ] ImpossibleEX+
+    - [ ] Impossible+
+    - [ ] Impossible+EX
+    - [ ] Impossible+EX+
+  - [ ] Legacy Dumped
+    - [ ] Baby
+    - [ ] Baby+
+    - [ ] Very Easy
+    - [ ] Very Easy+
+    - [ ] Easy
+    - [ ] Easy+
+    - [ ] Normal
+    - [ ] Normal+
+    - [ ] Hard
+    - [ ] Hard+
+    - [ ] Very Hard
+    - [ ] Very Hard+
+    - [ ] Insane
+    - [ ] Insane+
+    - [ ] Crazy
+    - [ ] Crazy+
+    - [ ] Brutal
+    - [ ] Brutal+
+    - [ ] BrutalEX
+    - [ ] BrutalEX+
+    - [ ] Impossible
+    - [ ] Impossible+
+    - [ ] ImpossibleEX
+    - [ ] ImpossibleEX+
+    - [ ] Impossible+
+    - [ ] Impossible+EX
+    - [ ] Impossible+EX+
+  - [ ] Legacy Dumped Remaster
+    - [ ] Baby
+    - [ ] Baby+
+    - [ ] Very Easy
+    - [ ] Very Easy+
+    - [ ] Easy
+    - [ ] Easy+
+    - [ ] Normal
+    - [ ] Normal+
+    - [ ] Hard
+    - [ ] Hard+
+    - [ ] Very Hard
+    - [ ] Very Hard+
+    - [ ] Insane
+    - [ ] Insane+
+    - [ ] Crazy
+    - [ ] Crazy+
+    - [ ] Brutal
+    - [ ] Brutal+
+    - [ ] BrutalEX
+    - [ ] BrutalEX+
+    - [ ] Impossible
+    - [ ] Impossible+
+    - [ ] ImpossibleEX
+    - [ ] ImpossibleEX+
+    - [ ] Impossible+
+    - [ ] Impossible+EX
+    - [ ] Impossible+EX+
+  NOTE
+ADD AAL THE VERSIONS LATER
