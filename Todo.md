@@ -142,5 +142,14 @@
     - [ ] Impossible+
     - [ ] Impossible+EX
     - [ ] Impossible+EX+
-  NOTE
-ADD AAL THE VERSIONS LATER
+- [ ] Split CDMC into submods
+## Post Release Additions
+- [ ] Credits for Non-CDMC devs (Apurples and composers etc.)
+- [ ] Add new pause song
+- [ ] make the credits button actual credits
+- [ ] remove herobrine
+- [ ] add windows 10 virutal drive
+- [ ] remove windows 10 virtual drive
+- [ ] make an linux port
+- [ ] (optional) make an macos port
+- [ ] (optional) wait for codename to drop 1.0.0
