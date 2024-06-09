@@ -11,5 +11,5 @@ idfk
 
 this should be updated soon
 
-Version Quote:
+
 "get a fucking life" - ItzTeam1 
