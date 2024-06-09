@@ -9,3 +9,7 @@ version is more important than mental health - unby6
 Its better to be pissed on than pissed off - SalatMan64
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/Screenshot_474.png?raw=true)
+
+:3 - Undermaniac
+
+![](https://github.com/CaptainDumb/CDMC/blob/main/Screenshot_475.png?raw=true)
