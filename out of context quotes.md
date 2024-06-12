@@ -14,7 +14,7 @@ Its better to be pissed on than pissed off - SalatMan64
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/Screenshot_475.png?raw=true)
 
-Caps (me :D) a girl? (yes i am) - Lulu_
+Caps (me :D) a girl?💀 (yes i am) - Lulu_
 More like a whale - Undermaniac
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/imagaine.jpg?raw=true)
