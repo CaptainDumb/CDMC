@@ -13,3 +13,16 @@ Its better to be pissed on than pissed off - SalatMan64
 :3 - Undermaniac
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/Screenshot_475.png?raw=true)
+
+Caps (me :D) a girl? (yes i am) - Lulu_
+More like a whale - Undermaniac
+
+![](https://github.com/CaptainDumb/CDMC/blob/main/imagaine.jpg?raw=true)
+
+im gonna fuck with god - Undermaniac
+
+![](https://github.com/CaptainDumb/CDMC/blob/main/asd.png?raw=true)
+
+Yeah im killing it, And fucking it, And deep throating it, And sucking it, And - seven_eight
+
+![](https://github.com/CaptainDumb/CDMC/blob/main/1718183956886.jpg?raw=true)
