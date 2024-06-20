@@ -27,7 +27,7 @@ Yeah im killing it, And fucking it, And deep throating it, And sucking it, And -
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/quoteimages/1718183956886.jpg?raw=true)
 
-Source: suck my dick (please) - razmar
+Source: suck my dick (please)⁽ᵉᵈⁱᵗᵉᵈ⁾ - razmar
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/quoteimages/Screenshot_490.png?raw=true)
 
