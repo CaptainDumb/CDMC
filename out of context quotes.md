@@ -26,3 +26,8 @@ im gonna fuck with god - Undermaniac
 Yeah im killing it, And fucking it, And deep throating it, And sucking it, And - seven_eight
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/quoteimages/1718183956886.jpg?raw=true)
+
+Source: suck my dick (please) - razmar
+
+![](https://github.com/CaptainDumb/CDMC/blob/main/quoteimages/Screenshot_490.png?raw=true)
+
