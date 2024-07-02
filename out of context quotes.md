@@ -31,3 +31,6 @@ Source: suck my dick (please)⁽ᵉᵈⁱᵗᵉᵈ⁾ - razmar
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/quoteimages/Screenshot_490.png?raw=true)
 
+i so pissed right now - Emily
+
+![](https://github.com/CaptainDumb/CDMC/blob/main/quoteimages/Screenshot_565.png?raw=true)
