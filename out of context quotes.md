@@ -61,7 +61,7 @@ Image thinking about a mod where we (by we i mean me, Jake, Nicole, Salat, you a
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/quoteimages/IMG_20240707_210613.jpg?raw=true)
 
-i am alive - a bottle of water
+i am alive - a bottle of water |
 lets change that - Undermaniac
 
 ![](https://github.com/CaptainDumb/CDMC/blob/main/quoteimages/image.png?raw=true)
